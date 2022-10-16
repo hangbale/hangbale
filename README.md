@@ -8,7 +8,7 @@
 
  ❤  My Blog - [idinr.com](http://idinr.com)   
  📧 Mail    - [me@idinr.com](me@idinr.com)   
- 📷 Photography - [i.idinr.com](http://i.idinr.com)
+ 📷 Photography - [i.idinr.com](http://i.idinr.com)   
  🎬 Movie Search - [m.idinr.com](http://m.idinr.com)
 
 
